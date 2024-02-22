@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: ejewel558@gmai.com 
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I am ampedectrious 
+- ⚡ Fun fact: I am ambidextrous 
 
 <!---
 JewelEdwards/JewelEdwards is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
